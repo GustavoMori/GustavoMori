@@ -5,4 +5,4 @@ Nessa jornada de desenvolvimento pessoal busco amizades e trocas de experiência
 "Se quer ir rápido, vá sozinho. Se quer ir longe, vá em grupo."
 
 Atualmente busco uma oportunidade de trabalho que desafie minhas soft skills e capacidades de resoluções de problemas. 
-Contato: [url=https://www.linkedin.com/in/gustavomoripeixoto]@Linkedin[/url]
+Contato: [Linkedin](https://www.linkedin.com/in/gustavomoripeixoto)
