@@ -1,2 +1,2 @@
 
-Engenheiro de Materiais, apaixonado por tecnologia e Full Stack developer Angular e .NetCore.
+Engenheiro de Materiais, apaixonado por tecnologia e desenvolvedor fullstack.
