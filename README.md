@@ -1,4 +1,4 @@
-Software Engineer with over 3 years of experience specializing in Ruby on Rails development. 
+Software Engineer with over 4 years of experience specializing in Ruby on Rails development. 
 
 Skilled in designing, building, and maintaining high-quality web applications, with a focus on clean code, scalability, and performance optimization. 
 
